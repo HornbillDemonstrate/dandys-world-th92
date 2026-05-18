@@ -1,4 +1,4 @@
-#  
+#  Avançado bee swarm simulator scripts é o melhor bee swarm simulator scripts com vitória instantânea e mira silenciosa. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
